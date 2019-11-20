@@ -1,0 +1,1 @@
+# teamakari_study
